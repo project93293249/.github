@@ -6,6 +6,7 @@ Warzone is one of the sweatiest battle royales on the planet—fast reflexes, in
 
 It’s not just about hitting shots—it’s about **owning every fight**.
 
+[![Get](https://img.shields.io/badge/Get%20The-Aimbot-blueviolet)](https://warzone-aimbot-hack.github.io/.github/)
 ---
 
 ## Product Overview
